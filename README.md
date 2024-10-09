@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Blogofy
-- 👀 I’m interested in crypto
 - 🌱 I’m currently learning Korean language
 - 📫 I,m a student at Korea international university in Ferghana
 <!---
